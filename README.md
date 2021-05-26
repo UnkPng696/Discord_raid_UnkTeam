@@ -1,1 +1,1 @@
-Go to glitch branch to see the codes
+Go to glitch branch to see all codes
