@@ -1,1 +1,1 @@
-# Discord_raid_UnkTeam
+Go to glitch branch to see the codes
